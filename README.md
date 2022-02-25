@@ -15,12 +15,6 @@ https://i.imgur.com/nDgejpJ.png
 
 https://i.imgur.com/PvW5gja.png
 
-Odd thing was that Blooket sent me a discord DM cease and desist LOL. The cease and desist was bullshit it just had bunch of threats, to scare me I guess. I just really stopped cause I got better shit to do than fuck around with Blooket.
+Odd thing was that Blooket sent me a discord DM cease and desist LOL. Cease and Desist are supposed to be in email not a fucking discord DM 😹. The cease and desist was bullshit it just had bunch of threats. I just really stopped cause I got better shit to do than fuck around with Blooket.
 
-Anyway, I'm always around.
-
-https://twitter.com/glizuwu
-
-https://github.com/glixzzy
-
-https://glizzers.xyz
+Anyway, I'm always around | https://twitter.com/glizuwu | https://github.com/glixzzy | https://glizzers.xyz
